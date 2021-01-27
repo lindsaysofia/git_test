@@ -1,0 +1,1 @@
+This is lindsaysofia's first git project woooo
